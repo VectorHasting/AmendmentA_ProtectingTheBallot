@@ -7,3 +7,5 @@ in the 21st Century.
 This is based on the US Constitution, and on the book: 
 The Bill of Rights Part Two: Ten New Amendments to Protect the First Ten, 
 independetly published in 2018
+
+#ConstitutionalAmendment #Constitution #Amendment #AmendTheConstitution #ProtectTheBallot
